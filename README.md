@@ -2,7 +2,7 @@
 
 你好，我是 NQuality。
 
-## 如果你也是跨境卖家，来找我
+## 如果你也是跨境卖家，想用AI重塑亚马逊，做AI Native改造，来找我
 
 <img src="assets/wechat-qr.png" alt="微信二维码" width="280">
 
